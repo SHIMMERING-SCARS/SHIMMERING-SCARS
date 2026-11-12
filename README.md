@@ -9,7 +9,7 @@ Sign ata if ud like | int idc u can do whateva
 
 not really into jojos anymore other than yoshikage kira and yasuho but i still interact with the fandom
 
-current things i Love are umamusume and muse (band). 
+current things i Love are umamusume and muse (band). beginning of a new era is my favorite thing ever.
 
 im nice unless you are not nice to me first and I do not like any sort of drama so do not try to include me in anything im not apart of. thank u!
 

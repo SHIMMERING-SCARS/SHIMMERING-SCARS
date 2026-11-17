@@ -5,6 +5,8 @@
 
 saw muse 8/10/26! <3
 
+chris wolstenholme #2 fan
+
 [尊(とうと)Mission! I’ll be the wall!](https://open.spotify.com/track/1nkdS4VFPZ8YoWP9ExKfpt?si=27f4f4f5f3404484)
 <img width="200" height="200" alt="agnes-digital-umamusume" src="https://github.com/user-attachments/assets/c5bde7c5-4409-4e4d-b20d-7e6e2716270e" />
 
